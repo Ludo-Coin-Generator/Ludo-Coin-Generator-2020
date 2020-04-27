@@ -4,7 +4,7 @@ You will get trick to generate ludo coins easily. We have uploaded a trick to ge
 
 Hello, If you are looking for working Ludo Coin Generator Then we are here going to tell you the amazing ludo king coin generator. Using that generator you can easily generate the millions of coins for free. This will be cool isn't it? 
 
-# So We Need This Ludo King Coing Generator? 
+# Why We Need This Ludo King Coing Generator? 
 We want to do show off with our friends that how much matches we won and how much coins we have so that will be amazing when we will show our millions of coins to your friend so they will jelous on you :p Anyway let's do this. 
 
 So if you want Ludo Coin & Diamond Generator Please Click Here >> https://bit.ly/3bFsmta
